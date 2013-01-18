@@ -56,6 +56,8 @@ This is the result of HOURS of surfing forums and search engines. I believe this
 72. [url]http://rcgserver.com/[/url] closed, very hard to find<BR>
 77. [url]http://nzb.kergald.net/[/url] closed, very hard to find<BR>
 83. [url]http://www.smackdownonyou.com[/url] - $10 lifetime membership<BR>
+85. [url]http://findnzbs.info/[/url] open <BR>
+86. [url]http://www.freenzb.com/[/url] open <BR>
 
 [I][B]Other:[/B][/I]
 34. [url]http://www.nzbmovieseeker.com/[/url]<BR>
